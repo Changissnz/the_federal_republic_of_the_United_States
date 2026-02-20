@@ -7,7 +7,7 @@ What a Catholic decision.
 "We let Silicon Valley continue on with its rat race competition for tech jobs since around 2014 when cloud computing hit the scene. We let in a lot of security vulnerabilities because around 80% of our 
 electronics are Chinese manufactures. We'd rather do that than establish electronics manufacturing plants in technologically disparate regions of the US, such as the South. Because we let in all these 
 security vulnerabilities, there are too many IT crimes being committed for our legal system to handle. We enable foreign cyberterrorists, mainly from Europe, as part of NATO/Russia pacts. We also enable 
-Whatever capital comes our way due to information technology, around 50% of that gets gobbled up by the legal industry, and of the remainder, around 30% go to stakeholders, 15% to foreign workers, and 5% 
+Whatever capital comes our way due to information technology, around 50% of that gets gobbled up by the legal industry, and of the remainder, around 30% goes to stakeholders, 15% to foreign workers, and 5% 
 to everyone else. We also let our media industry and their leftist affiliates start a bunch of culture wars over disinformation and media portrayals. Then we let rightists harass minorities and start fights 
 with leftists. Then we just sit back and watch the blood spill. We intervene from time to time, but only to seize possessions and keep some people broke." ~ The U.S. Government 
 
