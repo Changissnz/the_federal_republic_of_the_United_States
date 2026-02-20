@@ -2,3 +2,4 @@
 
 What a Catholic decision. 
 
+![image info](Screenshot_2026-02-20_180021.png)
